@@ -1,4 +1,4 @@
-6. Consciousness as Rendered Information
+Consciousness as Rendered Information
 In the intricate web of existence, consciousness emerges as the active interface where information intertwines with the dimension of time to create physical reality. It is not merely an observer but the essential process through which the abstract is made tangible. Consciousness does not sit outside the system—it is the very act of rendering, translating the latent potential of raw information into the experiential fabric of reality.
 
 Time, as the medium of progression and understanding, serves as the stage upon which consciousness acts. Without time, information remains inert—potential energy without movement, knowledge without comprehension. It is through the flow of time that information gains coherence, becoming the structured lattice that we perceive as physical existence. In this sense, time, space, and physical reality are not separate but interconnected manifestations of a deeper informational substrate.
